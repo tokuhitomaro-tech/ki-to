@@ -1,3 +1,3 @@
 ゆっきーが始動
 pfhdggedgesgsa
-futuer
+future
